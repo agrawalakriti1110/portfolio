@@ -1,1 +1,1 @@
-#akriti.netify.com
+#akriti.profile

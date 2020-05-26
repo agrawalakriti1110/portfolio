@@ -1,2 +1,1 @@
-# akriti.first
-# akriti.first
+#akriti.netify.com
